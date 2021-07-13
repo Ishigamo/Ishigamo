@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ishigamo
-- 👀 I’m interested in Anime and game
+- 👀 I’m interested in Anime and gamming
 - 📫 How to reach me https://discord.com/invite/r4JWKd5jmE
 
 <!---
